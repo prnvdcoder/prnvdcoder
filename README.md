@@ -1,4 +1,4 @@
-✋Hi,I am Pranav |ML & DS Enthausist
+✋Hi,I am Pranav 
 - 👀 i Like to Interact with like minded individuals
 - 🌱 currently studying Machine Learning And Data science
 - 📫 How to reach me ...www.linkedin.com/in/pranav-k-978173292
